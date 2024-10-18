@@ -1,2 +1,2 @@
 # acharyaICCP
-#  [LINK TO CONFERENCE(LIVE STREAM)](https://youtube.com/live/EMBMrHvQGV0?feature=share)
+#  [LINK TO CONFERENCE(LIVE STREAM)](https://youtube.com/live/b2KumKFjfpU?feature=share)
